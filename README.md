@@ -27,7 +27,7 @@
 ## 📫 Contacto
 
 - ✉️ jorgericardoberrosperuaspirua@gmail.com
-- 🌐 *(Agrega tu LinkedIn aquí si tienes)*
+- 🌐 https://www.linkedin.com/in/jorge-ricardo-b-357633314/
 
 ---
 
