@@ -26,7 +26,7 @@
 
 ## 📫 Contacto
 
-- ✉️ jorgericardoberrosperuaspirua@gmail.com
+- ✉️ jorgericardoberrosperua@gmail.com
 - 🌐 https://www.linkedin.com/in/jorgeberrosperua/
 
 ---
